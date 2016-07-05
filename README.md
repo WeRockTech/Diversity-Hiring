@@ -2,6 +2,8 @@
 
 Notes &amp; ideas on how to get a more diverse team with a better hiring &amp; recruitment process
 
+---
+
 *Please add/amend below, it is all versioned so feel free to make changes*
 
 #### Initial high level thoughts are:
